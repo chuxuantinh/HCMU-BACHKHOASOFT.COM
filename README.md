@@ -10,4 +10,4 @@ Thanks!
 Thân ái!
 
 
-Xuân Tình (HCMUT)
+Chu Xuân Tình (HCMUT)
